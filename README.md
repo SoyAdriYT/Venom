@@ -1,4 +1,4 @@
-# Venom 🥷
+# VenomX 🥷
 
 Discord : https://discord.gg/yZTduXkhMn
 
